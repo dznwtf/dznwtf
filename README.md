@@ -1,4 +1,4 @@
-### Olá ! Me chamo dzn, bem vindo ao meus perfil
+### Olá ! Me chamo dzn, bem vindo ao meu perfil
 
 
 - 🔭 Apaixonado por buceta e pelo Discord.
